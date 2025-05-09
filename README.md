@@ -1,0 +1,1 @@
+Drive link for Image folder: https://iitgoffice-my.sharepoint.com/:f:/g/personal/j_ipsita_iitg_ac_in/EmLR_zjFR3tGtIpm8RkoB98B9yt9glqZDIudF7vOwHBgFQ?e=vtSQfg
